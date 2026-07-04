@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently a 3rd year btech student at GM UNIVERSITY,DAVANGERE.<br>My branch is cybersecurity.<br>
+I'm a 3rd year btech student at GM UNIVERSITY,DAVANGERE.<br>My branch is cybersecurity.<br>
 
 
 ## 🌐 Socials:
